@@ -1,0 +1,3 @@
+- This kind of certainty comes but once in a lifetime.
+- Real loss is only possible when you love something more than you love yourself. 
+- I love you not for who you are, but for who I am with you.  
